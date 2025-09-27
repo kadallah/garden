@@ -1,0 +1,13 @@
+---
+{"dg-publish":true,"permalink":"/prose/fleeing-kaarta/","tags":["prose"]}
+---
+
+The writing had been on the wall maybe even as early as its erection. Kaarta was still a relatively new state after all, younger even than the great beast on the other side of the water that seemed to only grow stronger with each shipment of men that it stole from this land. Feeding on Black bodies, this machine that few had seen and returned from only grew hungrier with each meal that it made of once mansas, now martyrs.
+
+In the footsteps of the warrior-chiefs of millennia past, this land between the sands of the coast and the sands of the Sahara seemed to be in a state of perpetual “Holy” War. Men who claimed the mandate of God led jihad and crusades to prove once and for all Allah’s true name and sold their brothers for their weight in gold to ghosts who could not care less the conditions through which their product was acquired. As long as there was war, kingdoms willingly sold combatants off, unconcerned with the day that they themselves could be considered enemies of the state. Rumor had now traveled over the waves that this spirit of war had even taken over that far away land, that a new kingdom had formed on the basis that all Blacks were slaves and in its short life it was clear that its dependence on dark bodies was so great that without them it would simply collapse under its own weight.
+
+But that’s some other singer’s tale to tell, and Jelimuso had her own story to carry, especially now that the world she’d always known was crumbling around her. Her life was sandwiched in the interlude between two kings that believed in a singular great male god that didn’t think very highly of women, and didn’t think much at all about those in between. And most importantly, they were men who were willing to kill for their beliefs, even while much less inclined to die for them.
+
+Unfortunately, by definition, Jelimuso was an infidel by birth, tinted by some original sin, for she was a girl griot, the latest in a long line of women who were born to hold and pass on the history of her “pagan” people. Her life was defined by speaking up and crying out, her soul designed to transmit truth, and if that truth wasn’t enough of a threat to the coming kings, the form this message took, passing through her female flesh, would simply be too much to bear.
+
+So she left, as her great grandmother before her had, to come to the land where Kaarta now stood and would soon fall. She felt no qualms as she left in the night, disguised as she was as a man on a night ride, she only hoped she would clear the desert before the coming river of blood could wash her away.
